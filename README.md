@@ -1,2 +1,2 @@
-# wtfsid
-wtf should i do
+# wtfimh
+wtf is my homework
