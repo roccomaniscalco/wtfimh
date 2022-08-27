@@ -1,2 +1,2 @@
 # wtfimh
-wtf is my homework
+wtf is my homework?
