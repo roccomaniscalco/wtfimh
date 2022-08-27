@@ -1,2 +1,2 @@
-# wtfdihtdtw
-wtf do i have to do this week
+# wtfsid
+wtf should i do
